@@ -1,4 +1,4 @@
-*/ Qᴜᴇᴇɴ ʙᴏɴɪᴋᴋɪ ᴡʜᴀᴛꜱᴀᴘᴘ ʙᴏᴛ
+/* Qᴜᴇᴇɴ ʙᴏɴɪᴋᴋɪ ᴡʜᴀᴛꜱᴀᴘᴘ ʙᴏᴛ
 	WHATSAPP BOT BY MR RUKA AND DEXTER ( CYBER TEAM OFC )
 
 WHATSAPP - 94767533889
